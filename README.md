@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AliramSobhani
-- 👀 I’m interested in Web3
+- 👀 I’m interested in Web3 Projects
 - 🌱 I’m currently learning about Web 3 
 - 💞️ I’m looking to collaborate on web 3 
 - 📫 How to reach me by my cyber
